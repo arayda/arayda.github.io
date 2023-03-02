@@ -1,1 +1,0 @@
-# arayda.github.io
